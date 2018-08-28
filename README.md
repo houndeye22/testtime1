@@ -1,2 +1,1 @@
-# testtime1
-this will be a waste, gamers...
+# WE OUT HERE LMAO TEXT HOURS XDD
